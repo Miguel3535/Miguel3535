@@ -1,5 +1,5 @@
 ### Oi tudo bem! Sejam bem-vindos ao perfil 👋🥇👽
-![.]_(https://user-images.githubusercontent.com/74038190/235224431-e8c8c12e-6826-47f1-89fb-2ddad83b3abf.gif)_
+(![image](https://github.com/Miguel3535/Miguel3535/assets/169831722/bd137e34-fc5a-420d-bede-366c1a3728c6)
 
 <!--
 **Miguel3535/Miguel3535** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
