@@ -1,4 +1,4 @@
-### Oi tudo bem! Sejam bem-vindos ao perfil 👋🥇👽
+### Oi, tudo bem? Sejam bem-vindos ao perfil 👋🥇👽
 (![image](https://github.com/Miguel3535/Miguel3535/assets/169831722/bd137e34-fc5a-420d-bede-366c1a3728c6)
 
 <!--
